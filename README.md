@@ -1,0 +1,1 @@
+# Soluci-n-cubo-Rubik-2x2-m-todo-A-
